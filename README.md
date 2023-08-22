@@ -1,8 +1,4 @@
 xzcc- 👋 Hi, cvbI’m @angelacamhjv,bmn gfd
 - 👀 I’m interested in sa...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...asd
-- 📫 How to reaadsch me ...
-jdfhfghxsaal ✨ revxcpository because its `README.md` (this file) appears on yourbx GitHub profile.
-You can click the Preview link to takeasdcx a look axzcxct your changes.
+- 🌱 I’m currecink to takeasdccxvx a look axzcxct your changes.
 --->
