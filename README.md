@@ -3,7 +3,6 @@
 - 🌱 I’m currecink to takeasfzdfsaчсячhgndvcvdjhccxvx a look axzcxct yousdfcvxzr фчіфdasdsadasdsadchangesdsfdsfфівіфв.sdcмсчxczxczasxcasdfasячячdf
 --->sadcxzсмиasdxzcxzxzcasdfdssdsa.kljdasdфів
 gbfвапимсисмиcvcsdfdsf
-xasdfasdfлроифівdgfhdgfhcxzxcмсч
-авпмсчсчghjfhіфвіфвфівіфzasdzxcфівіфв
+xasdfasdfлроифівdgfhdgfuykuфzasdzxcфівіфв
 asdsadsdfdsfdsfвфа
 dassad
